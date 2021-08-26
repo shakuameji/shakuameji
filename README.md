@@ -2,7 +2,7 @@
 ***
 Welcome your visit to **shakuameji**！<br>欢迎您参访**释雨寺**！
  
-Even though **shakuameji** sounds like the temple's name, more hopefully that you understand it as an ideal realm far from the secular world.<br>尽管**释雨寺**听起来像是寺庙的名字，但更希望你将他理解为远离尘寰的理想境界。
+**shakuameji** is a virtual temple, but more hopefully that you understand it as an ideal realm far from the secular world.<br>**释雨寺**是一座虚拟的寺庙，但更希望你将他理解为远离尘寰的理想境界。
 ***
 If you want to contact the administrator of **shakuameji** quickly:<br>如果你想尽快地联系**释雨寺**的管理员：
 
